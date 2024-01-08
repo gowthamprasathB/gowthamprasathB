@@ -1,4 +1,4 @@
-![logo](https://github.com/gowthamprasathB/master/blob/master/banner-gp.jfif)
+![logo](https://github.com/gowthamprasathB/gowthamprasathB/blob/Master/banner-gp.jfif)
 <h1 align="center">Hi 👋, I'm Gowtham</h1>
 <h3 align="center">A passionate software developer from India</h3>
 
