@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **gowthamprasathb2001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1mPwoZrRz2BgkmO2t3bUGSO35G284o6by/view?usp=sharing](https://drive.google.com/file/d/1mPwoZrRz2BgkmO2t3bUGSO35G284o6by/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1mPwoZrRz2BgkmO2t3bUGSO35G284o6by/view?usp=sharing](https://drive.google.com/file/d/1wLiddHAwO147dg6q6bczB_EY7XUh9p7A/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
